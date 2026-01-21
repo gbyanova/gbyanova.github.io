@@ -1,1 +1,1 @@
-gispace | 2025 | All rights reserved 
+gispace | 2025-2026 | All rights reserved 
